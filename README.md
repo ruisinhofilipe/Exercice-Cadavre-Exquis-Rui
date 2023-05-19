@@ -1,3 +1,1 @@
-# Sleepy, the turtle
-
-A few years ago, there was a turtle named sleepy. Ever since Sleepy was just a baby turtle he always had a dream: to become the fastest animal in the world. While growing up and to protect from predators, its parents only allowed him play with his brothers/sisters and Sleepy was, by far, the fastest of them all. But Sleepy's life was about to change .. 
+as soon as he turned as an adult and his parents didn't had to protect him, he quickly realized that he was one of the slowest animals in the entire world despite being the fastest turtle of his family. So later, he began to realise that if he wants to become the fastest creature alive, he would have to leave his family and explore the world. So, he took his stuff and said goodbye to his brothers and sisters ans also to his parents. And so began the terrifying adventure of Sleepy the fast turtle.
